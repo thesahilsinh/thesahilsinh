@@ -26,5 +26,5 @@ Here are some ideas to get you started:
 
 This are the things github has suggested me... honestly just trying new things which can excites me. :)!
 
-  love & hate from
-  Sahilsinh Chavda
+love & hate from   
+Sahilsinh Chavda
