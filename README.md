@@ -14,3 +14,17 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on ... myself.
+- 🌱 I’m currently learning ... how to be unethical hacker.
+- 👯 I’m looking to collaborate on ... AI based malware developing (vibe coding :D).
+- 🤔 I’m looking for help with ... how to not take a help.
+- 💬 Ask me ... about nothing.
+- 📫 How to reach me: ...  do not even try or think about it as i have lost my home :))
+- 😄 Pronouns: ... call me mysteriously known
+- ⚡ Fun fact: ... Trying to be funny
+
+This are the things github has suggested me... honestly just trying new things which can excites me. :)!
+
+love & hate from
+Sahilsinh Chavda
